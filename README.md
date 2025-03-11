@@ -1,4 +1,4 @@
 Oii 
 eu sou a Giovanna | cursando Desenvolvimento de sistemas ✨
-SP/BR
+SP|SC
 444
