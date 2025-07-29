@@ -1,2 +1,2 @@
-<img width="1584" height="396" alt="Foto de fundo minimalista para banner de LinkedIn" src="https://github.com/user-attachments/assets/856c4f2d-1c1c-4975-845c-6196e2d42f14" />
+<img width="1584" height="396" alt="Foto de fundo minimalista para banner de LinkedIn (1)" src="https://github.com/user-attachments/assets/f3b70914-6e04-4b35-8875-6388f98c285c" />
 
